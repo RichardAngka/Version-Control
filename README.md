@@ -1,3 +1,3 @@
-Richard Angkawinata
-Github Akun: RichardAngka
-Profile: Richard Angkawinata
+- Richard Angkawinata
+- Github Akun: RichardAngka
+- Profile: Richard Angkawinata
